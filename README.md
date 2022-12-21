@@ -38,6 +38,3 @@ If you're love someone and want check your love score and this sytem will help y
        
 
 
-
-           You can contact me with :
-                  insta : https://www.instagram.com/_payakan_07079/
